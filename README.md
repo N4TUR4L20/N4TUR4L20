@@ -26,12 +26,7 @@ I'm looking to collaborate on projects related to AI, coding, and problem-solvin
 
 You can reach me at:
 
-* [Your Email]
-* [Your LinkedIn/Other Social Media Profiles]
-
-## Pronouns
-
-I prefer they/them.
+* n4tur4l.t20@gmail.com
 
 ## Fun Fact
 
